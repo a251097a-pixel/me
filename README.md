@@ -1,4 +1,4 @@
-Hi. I'm Aoki Ai. My number is 1254811015.
+Hi. I'm Aoki Ai. My school number is 1254811015.
 I'm from Hukui.
 Hukui is famous for dinosaurs.
 My hobby is playing game.
